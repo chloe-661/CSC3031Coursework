@@ -1,2 +1,16 @@
 # CSC3031Coursework
-Preperation for final year project and dissertation | RESEARCH AND PROJECT SKILLS MODULE (2021/22) | NEWCASTLE UNIVERSITY
+Newcastle University - 2021/22 - 3rd Year
+
+	RESEARCH AND PROJECT SKILLS MODULE
+	
+	Preperation for final year project and dissertation
+	
+	Ethics Form Submitted:
+	Recorded Video and Oral Presentation Submitted:
+	Peer Review Submitted:
+	Project Proposal Submitted:
+
+Marks and Feedback
+
+	Total marks:
+	Feedback: 
